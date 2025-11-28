@@ -1,5 +1,5 @@
 
-gotta make a shit to put all the shit in that don't belong to any other shit already created i.e., **sagbot**
+gotta make a shit big enough to put all the shit in that don't belong to any other shit already created i.e., **sagbot**
 
 
 
